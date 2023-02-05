@@ -1,5 +1,3 @@
 # new-progect1
-dfvfvxcvcvdfdfd
-dfdfsdxffffr
-hsgfhsbrthdhnyt
+лютый пиздец
 bred
